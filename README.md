@@ -1,3 +1,4 @@
 # latihan-kolaborasi
 123457
-COCAINEEE
+COCAINEEE IS BADDD
+
